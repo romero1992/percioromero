@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Pércio Romero
-- 👀 I’m interested in Vagas de empregos
+- 👔 I’m interested in Vagas de empregos
 - 🌱 I’m currently learning Ciência de Dados
 - 💞️ I’m looking to collaborate on empresas que buscam profissionais na área de Dados
 - 📫 How to reach me - Celular/Whatsapp: 81 9 86829638
